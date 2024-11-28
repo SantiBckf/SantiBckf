@@ -7,4 +7,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 você pode entrar em contato comigo 📬
 santiago.lavall@escola.pr.gov.br
 
-@alurastartestudante
+
